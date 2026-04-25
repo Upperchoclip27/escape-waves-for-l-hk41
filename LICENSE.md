@@ -1,4 +1,4 @@
-
+escape waves for lucky blocks updated Script offers the most advanced escape waves for lucky blocks Script, with auto-farm and aimbot. Perfect for
 
 
 
